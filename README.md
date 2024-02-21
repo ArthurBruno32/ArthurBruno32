@@ -1,4 +1,4 @@
-# 💫 Me conheça:
+#  Olá, eu sou o Arthur Bruno:
 🎥Atualmente sou gestor de Marketing Digital Imobiliário contratado em uma empresa.<br>💻Estou em migração de carreira para a área da programação<br>🎮Apaixonado por Games e Tecnologia.<br>🎨Sou criativo e busco sempre pela alta qualidade em meus trabalhos.<br>🌱Em aprendizado constante na formação FullStack DevClub.
 
 
